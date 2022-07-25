@@ -1,6 +1,6 @@
 [Twitter](https://twitter.com/n45h3n4z)
 | 
-[GitHub](https://github.com/N45h3n4Z)
+[Website](https://n45h3n4z.github.io/)
 
-connect me : N45h3n4Z@proton.me
+E-mail : N45h3n4Z@proton.me
 
